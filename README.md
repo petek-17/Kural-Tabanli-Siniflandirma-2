@@ -1,0 +1,1 @@
+# Kural-Tabanli-Siniflandirma-2
